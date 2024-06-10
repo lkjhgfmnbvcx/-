@@ -5,4 +5,8 @@
 ![image](https://github.com/lkjhgfmnbvcx/-/blob/main/%E8%9E%A2%E5%B9%95%E6%93%B7%E5%8F%96%E7%95%AB%E9%9D%A2%202024-06-09%20231418.jpg)
 
 # 結果:
-![image]().
+![image](https://github.com/lkjhgfmnbvcx/-/blob/main/p2.png).
+![image](https://github.com/lkjhgfmnbvcx/-/blob/main/p2-1.png).
+![image](https://github.com/lkjhgfmnbvcx/-/blob/main/p2-2.png).
+![image](https://github.com/lkjhgfmnbvcx/-/blob/main/p2-3.png).
+![image](https://github.com/lkjhgfmnbvcx/-/blob/main/p2-4.png).
